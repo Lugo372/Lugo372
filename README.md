@@ -1,6 +1,3 @@
-- Soon to be cybersecurity practioner just documenting some projects and virtual adventures. 
+- Thank you for stopping by, here some projects and virtual adventures that I am currently interested in. 
 - Take a look and tell me what you think about it!
-- Any advice good or bad is welcome!
-
-
-
+- Any advice is welcome!
