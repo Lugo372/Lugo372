@@ -1,3 +1,3 @@
-- Thank you for stopping by, here some projects and virtual adventures that I am currently interested in. 
+- Thank you for stopping by, here are some projects and virtual adventures that I am currently interested in. 
 - Take a look and tell me what you think about it!
 - Any advice is welcome!
